@@ -1,2 +1,2 @@
-i'm learning abiut github updated version
+i'm learning about github updated version
 
